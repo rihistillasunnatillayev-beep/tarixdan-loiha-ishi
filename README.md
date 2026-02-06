@@ -1,0 +1,1 @@
+# tarixdan-loiha-ishi
